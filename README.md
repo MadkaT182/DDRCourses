@@ -9,4 +9,4 @@ Thanks to 3x3qui3l for custom banners in GB2 courses.
 Thanks to simplenick for SSR SELECTION custom banner for GB2 courses.
 Thanks to fygar939 for general help specially with Xbox Games courses.
 
-And to VR0, darkanine, arcorann, n00b_saib0t, Nightime, and the Zenius I Vanisher community.
+And to VR0, darkanine, arcorann, n00b_saib0t, Nightime, hypnoticmarten77, and the Zenius I Vanisher community.
